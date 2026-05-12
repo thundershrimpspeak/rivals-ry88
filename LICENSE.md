@@ -1,4 +1,4 @@
-#  
+#  Experience rivals like never before with premium Script for rivals, the #1 Script. Includes aimbot and auto-upgrade for unbeatable performance.
 
 
 
